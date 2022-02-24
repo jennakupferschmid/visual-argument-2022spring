@@ -16,3 +16,6 @@ self-generated on GIMP
 Phone
 "a trailer of the fuure" by Rahul Chakraborty on November 26, 2017
 https://unsplash.com/photos/xsGxhtAsfSA
+Blanket-
+"brown leather sofa" by Jon Tyson on January 13, 2018
+https://unsplash.com/photos/eBN71NgyPU8

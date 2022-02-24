@@ -1,5 +1,7 @@
+The title of my visual argument is "A Like Isn't Love" which is
+also the text located on my image itself. The image is meant
+to be a commentary on how our generation is too invested in social media. The consequences of this investment rest on the fake validation that social media gives people. Since this validation is trivial, but ultimately abundant, real life validation is small in comparison. This creates a void for those addicted to social media, which may lead to serious mental health issues such as depression. In short, my image is meant to serve as a warning about the isolating effects social media can have on a person. 
 # Project 2: Visual Argument / Rhetorical Collage
-
 Your task in this unit is to **make a rhetorical claim through the juxtaposition of images and text.** It's kind of a collage, but a collage with an argument to make. In assigning this, I have two main goals for you: (1) to learn how to ethically obtain images and edit them using digital tools, and (2) to explore the affordances of still images as a medium, and especially their ability to _direct attention_ and _help make ideas memorable_.
 
 As with the sound project, the context for your argument is open: you could be making a social commentary, calling for action, constructing a parody, riffing on a pun, explaining a concept, inviting someone inside, and so on. Whatever you choose, you should consider your audience and what they would find persuasive or interesting, and how you therefore wish to attract and direct their attention.
